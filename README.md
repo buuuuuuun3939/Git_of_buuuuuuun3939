@@ -1,3 +1,3 @@
-This study for buuuuuuun3939.
+for buuuuuuun3939.
 
 Sample
